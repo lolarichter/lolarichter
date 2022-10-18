@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lolarichter, i am a student 
+- 👋 Hi, I’m @lolarichter, I am a student 
 - 👀 I'm interested in learning more, in updating more knowledge on my CV.
 - 📫 How to reach me: don't, I reach you.
 
