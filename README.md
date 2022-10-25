@@ -2,4 +2,4 @@
 - :computer:recently i am learning to program jarvascript code language
 - :brain: I'm interested in learning more, in updating more knowledge on my CV.
 - 💭:How to reach me: don't, I reach you.
-- 🍋:e-mail: sara.richter@escola.pr.gov.pr
+- 🍋: sara.richter@escola.pr.gov.pr
