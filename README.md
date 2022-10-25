@@ -1,5 +1,5 @@
 - 🤍: Hi, I’m @lolarichter, I am a student
-- :computer:recently i am learning to program jarvascript code language
+- :computer: recently i am learning to program jarvascript code language
 - :brain: I'm interested in learning more, in updating more knowledge on my CV.
-- 💭:How to reach me: don't, I reach you.
-- 🍋: sara.richter@escola.pr.gov.pr
+- 💭 How to reach me: don't, I reach you.
+- 🍋 sara.richter@escola.pr.gov.pr
